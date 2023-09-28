@@ -1,2 +1,0 @@
-# tareaViernes
-# tareaViernes
